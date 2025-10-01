@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello im currently learning i just uplooad my things of college and my personal stuff right here cheers :}
 
 <!--
 **MrGecio/MrGecio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
